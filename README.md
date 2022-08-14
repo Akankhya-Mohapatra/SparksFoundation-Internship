@@ -1,4 +1,4 @@
-# **THE SPARKS FOUNDATION INTERNSHIP - GRADUATE PROGRAM**
+# **In collaboration with Sparks Foundation**
 
 https://www.thesparksfoundationsingapore.org/
 
